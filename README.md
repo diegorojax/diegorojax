@@ -1,2 +1,2 @@
 Create, measure and learn ! 🐉
-Somos Freelance 69 arte y tecnologia 
+we are freelance 69 art and technology
